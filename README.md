@@ -16,3 +16,19 @@
 # List 5
 ### Then we given instructions by the teachers , told about the distribution of examination marks , 75 percent was made mandatory , subjects labs were given yo us.
 # This is very speacial day for all of us.So , This is what our first day was like .
+# Induction - Day 2
+## Day - Friday
+## Date - 1/8/2025
+# List 1
+## English Proficency Test is start at 9.30am to 10.30am .English Proficicency test consist of 3 sections: Reading (comprehensions),writing(letter writting) and grammer.test is 30 marks and time allowed is 50 minutes .
+## Math Proficiency Test (venue same as previous) is start at 10.30am to 11.30am .Math proficiency test is include basic maths questions done till 12th standard and numerial aptitide questions.
+## Then,11.30am to 1.00 pm is break time.
+# List 2
+## Then at 1pm all the students of CSE and IT branch were called. Where expert lecture by Dr.Arshdeep Singh "Food; A Pivtal Role in Student's in overall wellness"- Auditorium .Along with the lecture , we got to learn some misconceptions about food and some correct things.
+## then at 2.00pm to 3.00pm is session by causmic and launch of induction activities in auditorium.
+# Induction - Day 3
+## Day - Saturday
+## Date - 2/8/2025
+# List 1
+## At 9am to 11am , expert lecture by Dr. Jaswinder Singh(Incharge-IAPT) in Auditorium . This is really amazing lecture for all students .
+## At 11am to 1pm , expert lecture by Dr. Priya Darshni Madam on "Universal Human Values" -Auditorium.
