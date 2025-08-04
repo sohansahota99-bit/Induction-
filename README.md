@@ -1,7 +1,8 @@
 # ✨  Induction - Day 1..
 # 🎆 STUDENT INDUCTION PROGRAMME 🎆.
 ## 📅 Day- Thursday.-
-## 📅 Date - 31/7/2025
+## 📅 Date - 31/7/2025.
+# ✍️ Prepared by Prabhdeep Kaur (CSE Branch) ❤️
 # ❤️List 1 ❤️
 ## 🛕 Shabad Kirtan at 8.30am to 9.30am in College Gurdwara Sahib 
 ### With Shabad Kirtan , On the one hand , we found peace in our minds and on the other hand , it helped us escape the daily pressure of our daily pressure of our studies we felt sense of unit respect and belonging  through kirtan, we learned values like humility , kindness and the path of truth.
