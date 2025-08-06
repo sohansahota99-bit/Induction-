@@ -33,7 +33,7 @@
 #  ❤️ List 1 ❤️
 ## At 9am to 11am , expert lecture by Dr. Jaswinder Singh(Incharge-IAPT) in Auditorium . This is really amazing lecture for all students .
 ## At 11am to 1pm , expert lecture by Dr. Priya Darshni Madam on "Universal Human Values" -Auditorium.
-# ✨ Induction - Day 1
+# ✨ Induction - Day 4
 ## 📅 Day - Monday
 ## 📅 Date - 4/8/2025
 # ❤️ List 1❤️
