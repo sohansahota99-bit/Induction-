@@ -37,5 +37,5 @@
 ## 📅 Day - Monday
 ## 📅 Date - 4/8/2025
 # ❤️ List 1❤️
-## At 9.30am to 10.30am 
-
+## At 9.30am to 10.30am , A Chemistry lecture for CSE-E & CSE-F in TCC Sem Hall by Prof.Rajvir Kaur. 
+## At 10.30am to 11.30am , A P2P Lecture for CSE-E & CSE-F in TCC Sem Haal . This is our lecture taught by our seniors . seniors are really friendly with us in this lecture. They deal with us like a younger sbilings.This Lecture is amesome for us .
