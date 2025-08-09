@@ -39,3 +39,44 @@
 # ❤️ List 1❤️
 ## At 9.30am to 10.30am , A Chemistry lecture for CSE-E & CSE-F in TCC Sem Hall by Prof.Rajvir Kaur. 
 ## At 10.30am to 11.30am , A P2P Lecture for CSE-E & CSE-F in TCC Sem Haal . This is our lecture taught by our seniors . seniors are really friendly with us in this lecture. They deal with us like a younger sbilings.This Lecture is amesome for us .
+# ❤️ List 2❤️
+## At 11.30 to 12.30 is break time.
+## At 12.30pm to 2.30pm , expert lecture by Dr. Priya Drashni Madam on Universal Human Values - 2", in auditorium . This lecture is very relatable in our life.
+## At 2.30pm to 3.30pm , A session by causmic club . We are students driven club dedicated to exploring The wonders of astronomy , spacce sciene and innovation . From stargazing nights to exicting seminars, workshops and qizzes - we bring the cosmos closer to you.
+# ✨ Induction - Day 5
+## 📅Date - 5/8/2025
+## 📅Day - Tuesday
+# ❤️ List 1 ❤️
+## At 9.30am to 10.30am , A Chemistry lecture are section CSE - D & CSE-E in ME Sem Hall by Prof. Manjot Kaur.
+## At 10.30am to 11.30am , A Maths lecture are sections CSE-E & CSE-F in ME Sem Hall by Prof. Rajvir Kaur.
+## 12.30pm to 2.00pm is break time.
+# ❤️ List 2 ❤️
+## At  2.00pm to 4.30 Id Formation is Outside the TCC Sem Hall ,it is onlt for Branch CSE section B.
+# ✨Induction - Day 6
+## 📅Date-6/8/2025
+## 📅Day -Wednesday
+# ❤️List 1 ❤️
+## At 9.30am to 10.30am , A P2P Lecture .
+## At 10.30am to 11.30am , A English Lecture (CSE-D& CSE-F) by Prof.Jaswant Singh.
+## 11.30am to 12.30am is break time.
+# ❤️ List 2 ❤️
+## At 12.30pm to 2.00pm , A Lecture by Dr. Arvind Dhingra ( Director - Step & Incharge - TAC) in Auditorium.
+## At 2.00om to 3.00pm , A Expert lecture by Mr. Jasvir singh Sekhon (District Resource Person - stem) in Auditorium.
+## At 3.00pm to 4.00pm , A Lecture by Dr.Lakhvir Singh Khana(Incharge - CML)- Auditorium.
+# ✨Induction - Day 7
+## 📅Date- 7/8/2025
+## 📅Day - Thursday
+# ❤️ List 1 ❤️
+## At 9.30am to 10.30am  is lecture by Dr.Amit kamra (Inchargw DMC) in Auditorium.
+## At 10.30am to 11.30am is lecture by Dr.Parminder Singh (Dean - Student Welfare) in auditorium.
+## At 11.30am to 12.30pm is lecture by Dr. Randhir Singh on "Conduct of Examination"- Auditorium.
+## 12.30pm to 1.30pm is break time .
+# ❤️ List 2❤️
+## At 1.30pm to 2.30pm , A BEE Lecture (section CSE-E ) by Prof. Mandeep Kaur.
+## At 2.30om to 3.30pm, A English Lecture (Section CSe-E) by Prof. 
+# ✨Induction - Day 8
+## 📅Date - 8/8/2025
+## 📅Day - Wednesday
+## ❤️ List 1 ❤️
+## At 9.00am to 10.30am , A Chemistry Lecture (Section - CSE-E) By Prof.Mandeep Kaur.
+## At 10.30am to 12.00 , A P2P lecture by our Seniors . 
